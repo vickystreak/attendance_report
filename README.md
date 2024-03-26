@@ -1,1 +1,1 @@
-![Screenshot from 2024-03-26 17-56-43](https://github.com/vickystreak/attendance_report/assets/82258418/97518c9d-8158-4aa3-8b5d-95d3308614d7)
+![Screenshot from 2024-03-26 18-16-20](https://github.com/vickystreak/attendance_report/assets/82258418/c3968297-b906-4a8e-9246-4826fd61c2ae)
